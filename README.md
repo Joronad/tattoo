@@ -1,8 +1,11 @@
 #SIMPLE RULES, HOW TO CHOOSE THE IDEAL TATTOO 
 
+<img src="https://i.ytimg.com/vi/LD8sBwPQFC4/hqdefault.jpg">
+
 We all understand that the choice of tattoo must be approached with full responsibility. After all, a tattoo is forever. And no one wants because of the wrong decision or choice of drawing and the master to regret all his life.
 
-<a href="https://www.bestadvisor.com/tattoo-machines">best tattoo machine rewiew</a>
+Read more : <a href="https://www.bestadvisor.com/tattoo-machines">best coil tattoo machines</a> for begginers
+
 Rule 1. Choose a sketch of a tattoo
 
 The very first rule is probably one of the most difficult. Choose which drawing you want can take quite a long time. Vedas Your views and attitudes to life and events can change every year. Think about what kind of meaning you want to give your drawing on the body, and what kind of influence do you want it to bring into your life. It is necessary to go through a lot of pictures and ideas before going to the tattoo master with the decision to fill yourself with a tattoo.
